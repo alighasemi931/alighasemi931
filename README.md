@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **alighasemi931@gmail.com**
 
-- 📄 Know about my experiences [https://www.overleaf.com/read/pdhkhcrjxcmn](https://www.overleaf.com/read/pdhkhcrjxcmn)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
